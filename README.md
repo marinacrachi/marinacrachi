@@ -45,5 +45,4 @@ totally see what's all the hype about 😆 <br />
 
 ### How can I talk to you? 📫
 
-You can send me a message on my [LinkedIn]([https://pages.github.com/](https://www.linkedin.com/in/marinacrachi/)) or, 
-if you are more of an email person, you can reach me at marinacrachi[at]gmail.com 😎
+You can send me a message on my [LinkedIn]([https://pages.github.com/](https://www.linkedin.com/in/marinacrachi/)) or you can reach me at marinacrachi[at]gmail.com 😎
